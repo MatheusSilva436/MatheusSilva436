@@ -7,5 +7,5 @@
 
 
 
-
+![DagestanGIF](https://github.com/user-attachments/assets/5ca9b691-a004-443f-ba8a-341a24a2fd0c)
 ![SpinningMonkeyGIF](https://github.com/user-attachments/assets/360b1eb4-49f2-405e-8996-0328c3a4d0de)
