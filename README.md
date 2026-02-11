@@ -1,6 +1,6 @@
 ## olá pessoal 👋
 
--->Sou um estudante que esta aprendendo análise de desenvolvimento de sistema no SENAI e espero melhorar minhas habilidade em relação á programação e me tornar um bom profissonal🦧🦧
+Sou um estudante que esta aprendendo análise de desenvolvimento de sistema no SENAI e espero melhorar minhas habilidade em relação á programação e me tornar um bom profissonal🦧🦧
  
 
 
